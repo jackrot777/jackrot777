@@ -1,6 +1,6 @@
 ![fd16e6cef8b8b4595e09c25b5e762930(1)](https://github.com/user-attachments/assets/a20c8549-9f40-47f5-8aea-90c86151720e)
 
-`" Only bad part of gamblin' is losing! "`
+ `" Only bad part of gamblin' is losing! "`
 
 ‎⠀⠀⠀⠀⠀⠀⠀⠀⠀♤ ***R*edd / *C*hance** ♤
 
