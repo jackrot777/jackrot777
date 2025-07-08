@@ -16,7 +16,7 @@
 
 ⠀⠀⠀⠀⠀ ⠀Rentry/Strawpage/ETC WIP
 
-⠀⠀⠀Minor, Artist, ***M-IV+AllSkins Chance***
+Minor, Artist, ***M-IV+AllSkins+Plush Chance***
 
 ⠀⠀`" ♡ I'll bet on you, sweetheart ♡ "`
 
